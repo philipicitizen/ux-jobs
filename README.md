@@ -1,4 +1,4 @@
-#iCitizen - Jr to Mid Level UI/UX Designer
+#iCitizen - UI/UX Designer
 Are you ready to make a difference in your career and solve one of the biggest problems we are facing?
 * * *
 
